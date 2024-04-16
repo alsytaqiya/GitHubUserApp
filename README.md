@@ -17,4 +17,8 @@ https://github.com/alsytaqiya/GithubUserApp/assets/93572947/c42bae06-961a-4163-8
 https://github.com/alsytaqiya/GithubUserApp/assets/93572947/e6ca1f37-8f32-49f3-9f18-ef673bafd4f0
 https://github.com/alsytaqiya/GithubUserApp/assets/93572947/75a81ac6-a7dc-42d8-b190-5dd2a376baaf
 https://github.com/alsytaqiya/GithubUserApp/assets/93572947/0d2a8749-9029-43bb-a749-98f9ea003522
+https://github.com/alsytaqiya/GithubUserApp/assets/93572947/12ef2af9-a088-499b-b91f-1e7b36e7ddad
+https://github.com/alsytaqiya/GithubUserApp/assets/93572947/bc444b5a-d9bd-4906-b8f2-381c69652156
+
+
 
